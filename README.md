@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning to code
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking forward to reach a level that allows me to collaborate 
-- 📫 How to reach me, 
+- 📫 How to reach me in case of need. You dont need I guess.
 
 <!---
 IntelSys-iT/IntelSys-iT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
