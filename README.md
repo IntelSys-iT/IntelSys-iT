@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IntelSys-iT
 - 👀 I’m interested in learning to code
-- 🌱 I’m currently learning HTML
+- 🌱 I’m currently learning HTML, Python and JavaScript
 - 💞️ I’m looking forward to reach a level that allows me to collaborate 
 - 📫 How to reach me in case of need. You dont need I guess.
 
