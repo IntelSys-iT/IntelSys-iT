@@ -21,7 +21,7 @@ Disclaimer: The contributor(s) cannot be held responsible for any misuse of the 
 Download the eBooks at your own risks.
 DMCA takedown cannot be possible as we are not republishing the books/infringement of code, but we are just hosting the links to 3rd party websites where these books can be downloaded. To know more on DMCA takedown policy here.
 
-Have fun, life its too shott, and loats of good books to read :)
+✨ special ✨ Have fun, life its too short, and loats of good books to read :) 
 <!---
 IntelSys-iT/IntelSys-iT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
