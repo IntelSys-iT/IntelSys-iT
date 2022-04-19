@@ -22,7 +22,14 @@ Download the eBooks at your own risks.
 
 DMCA takedown cannot be possible as we are not republishing the books/infringement of code, but we are just hosting the links to 3rd party websites, where these books can be downloaded. To know more on DMCA takedown policy check here.
 
-✨ special ✨ Have fun, life its too short, and loats of good books to read :) 
+✨ special ✨ 
+
+✨ Always remember that you have 3 currencies:
+✨ 1 - Your Time
+✨ 2 - Your Money
+✨ 3 - Your Knowledge
+Whichever one you need, use the other two to get it. If you need Money trade your Time or Knowledge for it. If you need Knowledge trade your Time or Money for it. 
+Have fun, life its too short, and lots of great books to read :) 
 
 <!--- IntelSys-iT/IntelSys-iT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes ---> May the Force be strong in YOU.
